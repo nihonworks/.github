@@ -1,6 +1,6 @@
-## Hi there, We're TKNF Creations 👋
+## Hi there, We're Nihonworks 👋
 
-More information: [https://tknf.net](https://tknf.net)  
+More information: [https://nihonworks.jp](https://nihonworks.jp)  
 
 <!--
 
